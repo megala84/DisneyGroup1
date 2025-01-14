@@ -1,0 +1,1 @@
+A young girl who creates amazing programs.one day a jealous hacker puts a virus on her computer.when she tried to fixes it. her entire system creshes she fell into asleep.
