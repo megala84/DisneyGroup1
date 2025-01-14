@@ -1,0 +1,1 @@
+Young genius who creates amazing apps and programs. One day, a jealous hacker  puts a virus into her computer. When girl tries to fix it, her entire system crashes, and she falls into a deep "sleep," where she can’t use any of her tech.
