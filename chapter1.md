@@ -1,0 +1,1 @@
+Young girl who crate amazing apps and programs.one day , a jealous hacker puts virus into her computer. when girl tries to fix it , her entire system crashes and she falls into a deep sleep where she cant use any of hertech.
