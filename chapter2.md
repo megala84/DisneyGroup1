@@ -22,4 +22,4 @@ In her dream she found herself working on the bug, she analysed the code and deb
 ![Working Aurora](./images/working_sleeping_beauty.gif)
  
 
- THE END
+ THE END!
