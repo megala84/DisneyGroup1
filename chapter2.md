@@ -20,4 +20,6 @@ In her dream she found herself working on the bug, she analysed the code and deb
 ##### Working Aurora
 
 ![Working Aurora](./images/working_sleeping_beauty.gif)
->>>>>>> main
+ 
+
+ THE END
