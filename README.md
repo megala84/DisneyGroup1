@@ -1,6 +1,8 @@
 # DisneyGroup1
 
-Fun collabrative short stories explaining what would happen if Disney princess were software professionals.
+Fun collabrative short story explaining what would happen if Disney princess were software professionals. 
+
+Here is a short story of princess **Aurora** who is a big dreamer and possess the extraordinary ability to investigate software issues while she is dreaming.
 
 Working Disney Princess:
 
