@@ -22,3 +22,5 @@ To safeguard the project, they collaborated to create a strong security system.
 
 "SweetDreams" was launched successfully, and Aurora and Phillip were praised for saving the day.
 
+
+Young girl who crate amazing apps and programs.one day , a jealous hacker puts virus into her computer. when girl tries to fix it , her entire system crashes and she falls into a deep sleep where she cant use any of her tech.
